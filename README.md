@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @AkshitD23
-- 🌱 I’m currently pursuing BE CSE
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Mail:-dhimanakshit0925@gmail.com
 
